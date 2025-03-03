@@ -1,6 +1,8 @@
 # 程序员如何优雅地做副业
 
-苦逼打工人可以这个关注公众号：![](https://github.com/rock365/img/blob/main/qrcode_for_gh_29114416bf77_258.jpg)
+苦逼打工人可以关注这个公众号：
+
+![](https://github.com/rock365/img/blob/main/qrcode_for_gh_29114416bf77_258.jpg)
 
 # 目录
 
